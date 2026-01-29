@@ -6,13 +6,13 @@
 
 2 large eggs (room temperature preferred)
 
-1 tablespoon vanilla extract
+2 tablespoon vanilla extract
 
 2 1/4 cups (280g) all-purpose flour
 
-1 teaspoon baking soda
+3 teaspoon baking soda
 
 1/2 teaspoon salt
 
-1 1/2 to 2 cups (approx. 300g) semi-sweet chocolate chips 
+1 1/2 to 2 cups (approx. 500g) semi-sweet chocolate chips
 

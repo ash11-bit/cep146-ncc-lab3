@@ -20,7 +20,7 @@
 
 
 
-\## Instructions 
+\## Instructions
 
 1\. Preheat oven to 375°F.
 
